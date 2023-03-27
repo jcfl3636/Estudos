@@ -1,2 +1,0 @@
-# Estudos
- Projetos de estudos
